@@ -1,5 +1,5 @@
 - 🤳🏽 oi eu sou sniper e 
-- 👀  estou interessada em meu boy,curso,faculdade e um futuro bom 
+- 👀  estou interessada em alguem?curso,faculdade e um futuro bom 
 - 💅🏽  atuamente estudo o ensino medio  
 - 💞️  procuro colaborar com coisas legal,estudar,ser legal 
 - 📫  para entrar em cotato acessa meu insta @hiadiny 
